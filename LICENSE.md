@@ -1,4 +1,4 @@
-#  
+#  driving empire vip Script offers the most advanced driving empire Script, with auto-farm and aimbot. Perfect for dominating any match.
 
 
 
